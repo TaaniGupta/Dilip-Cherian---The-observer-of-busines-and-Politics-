@@ -1,0 +1,2 @@
+# Dilip-Cherian---The-observer-of-busines-and-Politics-
+Dilip Cherian is the co-founder of Perfect Relations, which is South Asia’s largest Image Management and public affairs consultancy group for the last 20 years, with more than 17 offices in India and across South Asia. Dilip was recently elected to IPRA’s (International Public Relations Association) Global Council as the India Council Member for a two-year tenure. Dilip is also a valued political advisor and a practising lobbyist of repute.
